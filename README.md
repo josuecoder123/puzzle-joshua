@@ -1,2 +1,2 @@
 # puzzle-joshua
-NSABIHORAHO joshua
+NSABIHORAHO joshua L3 SOD B
